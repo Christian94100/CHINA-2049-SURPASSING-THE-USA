@@ -1,4 +1,4 @@
-# 🚀 **CHINA 2049 : Surpassing the USA**  
+# 🚀 **CHINA 2049 : Surpassing the USA ?
 ### *31 Slides Stratégiques – Générés en 10 minutes avec Kimi 2.0*  
 
 > **"Le Rêve Chinois de Xi Jinping : devenir la première puissance mondiale d'ici 2049."**  
