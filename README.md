@@ -1,4 +1,7 @@
 Présentation de l'analyse "Chine vs USA 2049 : Les Nouveaux Mondes"
+
+
+
 Cette étude approfondie, réalisée par Kimi AI en août 2025, propose une analyse prospective des relations géopolitiques et économiques entre la Chine et les États-Unis sur une période de 24 ans, de 2025 à 2049. Le document se présente sous forme de scénarios détaillés qui explorent différentes trajectoires possibles de compétition globale, sans présumer d’un vainqueur définitif, offrant ainsi une vision réaliste et équilibrée.
 
 Menu et structure du contenu
@@ -35,7 +38,4 @@ Pour contact ou collaboration : @christ94100 sur X
 
 Ce résumé offre une vue d’ensemble structurée, en mettant en lumière les parties clés du document et les sources utilisées, tout en conservant la rigueur et le style professionnel que vous souhaitez.
 
----
 
-> **Prochain ?** Une version **franco-chinoise bilingue** ou **vidéo animée (MP4)** sur demande.  
-> **Feedback ? RT ? Collab ?** → DM sur X !
