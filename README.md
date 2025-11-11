@@ -7,7 +7,7 @@
 ---
 
 ## 📊 **Résumé**  
-Une **présentation professionnelle** (31 slides) analysant **comment et quand la Chine dépassera les États-Unis** d'ici le centenaire de la fondation du PCC (2049).  
+Une **présentation professionnelle** (51 slides) analysant **comment et quand la Chine dépassera les États-Unis** d'ici le centenaire de la fondation du PCC (2049).  
 
 Créée **en 10 minutes** via **Kimi 2.0** (IA chinoise de Moonshot AI), cette mini-thèse économique explore :  
 - Croissance du PIB (projections IMF, Banque Mondiale)  
